@@ -1,4 +1,4 @@
-- Oi sou O @MinuanoVantas
+- Oi sou 0 @MinuanoVantas
 - Me interesso por esportes e jogos. 
 - Estou aprendendo HTML e CSS.
 - Podem me encontrar em @silva.freitas.eduardo@escola.pr.gov.br .
